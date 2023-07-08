@@ -2,7 +2,7 @@
 About Ibrahim Mohamed
 ------------------
 
-A multi-skilled technical Manager with good all-round supervisory and technical expertise, Very broad experience and extensive knowledge in mobility field, handhelds, portable and fixed printers, RFID, barcode readers and barcode technology; as well as all managing, implementing and working on all solutions that revolve around the technology  with a successful record of leading and managing teams to deliver large scale projects for private and public sector. 
+A multi-skilled technical manager with good all-round supervisory and technical expertise, very broad experience and extensive knowledge in mobility field, handhelds, portable and fixed printers, RFID, barcode readers and barcode technology; as well as all managing, implementing and working on all solutions that revolve around the technology  with a successful record of leading and managing teams to deliver large scale projects for private and public sector. 
 
 
 
